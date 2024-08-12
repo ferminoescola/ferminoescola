@@ -7,5 +7,5 @@ Meu nome é Gustavo Fermino
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 ### Você pode entrar em contato comigo 📫
-! [taylor lenda] (https://tenor.com/pt-BR/view/oop-slay-queen-gif-11176281874851619179)
 fermino.santos@escola.pr.gov.br 
+![taylor_lenda](https://tenor.com/pt-BR/view/oop-slay-queen-gif-11176281874851619179)
