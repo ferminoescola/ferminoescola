@@ -12,4 +12,4 @@ fermino.santos@escola.pr.gov.br
 
 
 
-![taylor](https://tenor.com/pt-BR/view/meeheehee-gif-15121375367338683692)
+![taylor](https://tenor.com/pt-BR/view/lol-gif-18481614)
