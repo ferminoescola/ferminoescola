@@ -8,4 +8,4 @@ Meu nome é Gustavo Fermino
 
 ### Você pode entrar em contato comigo 📫
 fermino.santos@escola.pr.gov.br 
-![taylor_lenda](https://tenor.com/pt-BR/view/oop-slay-queen-gif-11176281874851619179)
+![taylor swift](https://tenor.com/pt-BR/view/gjirlfriend-gif-7933137361728082703)
