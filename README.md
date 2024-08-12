@@ -1,4 +1,4 @@
-## ### Boas vindas ao meu perfil 💙
+ ##  Boas vindas ao meu perfil 💙
 
 Meu nome é Gustavo Fermino
 
@@ -8,4 +8,4 @@ Meu nome é Gustavo Fermino
 
 ### Você pode entrar em contato comigo 📫
 fermino.santos@escola.pr.gov.br 
-![](https://tenor.com/pt-BR/view/gjirlfriend-gif-7933137361728082703)
+![ ](https://tenor.com/pt-BR/view/gjirlfriend-gif-7933137361728082703)
