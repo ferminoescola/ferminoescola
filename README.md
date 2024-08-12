@@ -8,4 +8,8 @@ Meu nome é Gustavo Fermino
 
 ### Você pode entrar em contato comigo 📫
 fermino.santos@escola.pr.gov.br 
+
+
+
+
 ![ ](https://tenor.com/pt-BR/view/gjirlfriend-gif-7933137361728082703)
